@@ -1,5 +1,5 @@
 # Cystic-Nerve-and-The-Human-Soul
-The human soul lives in the cystic duct. The cystic duct looks like a spiral or a coil. Dr. Correo Hofstad believes this coil reads electronic signals in cortisol sent from the brain during stressful situations. The body sends cortisol to the gallbladder EVERY time a stressful situation happens. The gallbladder sends back nerve responses to the brain.  
+Does the human soul live in the cystic duct? The cystic duct looks like a spiral or a coil. Dr. Correo Hofstad believes this coil reads electronic signals in cortisol sent from the brain during stressful situations. The body sends cortisol to the gallbladder EVERY time a stressful situation happens. The gallbladder sends back nerve responses to the brain.  
 
 At Fred Hutch, when a gall bladder is transplanted with a cystic duct during a liver transplant, the recipient begins to act like the donor. The recipient will believe that they have been taken and put in someone else's body.  The spoken language of the recipient will change to the native tongue of the donor. The person will call the phone numbers of the donor's friends who the recipient has never met.   
 
